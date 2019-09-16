@@ -3,7 +3,7 @@ Rushikesh kale
 HomeBrew is Awesome
 Pranav
 darshana
-kaustubh tulaskar - @19.8417348,75.8545438,13z  ---jalna
+kaustubh tulaskar - @19.8417348,75.8545438,13z  ---jalna is my home 
 LUCIFER0x7, We all are awesome developer's 
 aarya
 ankit 
